@@ -1,1 +1,1 @@
-<h1 align='center'> ! me !</h1> <p align='center'> eddward / bug ~ ed <ins>edd</ins> n eddy introject </br> 17 y/o w/ DID & AuDHD </br> tmasc & arospec </p> <h2 align='center'> ! important info !</h2> <p align='center'> Please treat me like a singular person. The personal goal is to function as multiple but for our healing and recovery I would rather be seen as ONE person. Due to this I have social issues with other systems and may disengage easier. </p>
+wip
