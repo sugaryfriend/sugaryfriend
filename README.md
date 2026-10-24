@@ -1,1 +1,1 @@
-<p align='center'> names: friend/guy </br> transmale </br> future social justice consultant <3 </p>
+<p align='center'> mikaul </br> genderless </br> med. recognized DID sys </br> no dni ; i block freely </p>
